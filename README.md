@@ -30,3 +30,6 @@ oii meus amoress
 - dream e sara sara as mais mais do "always yours"
 - scoups no met gala veyrrr
 - nao to entendendo nada de fup :(
+
+## falem de artistas
+podem me julgar mas estou gostando das músicas da tate mcgrae :/

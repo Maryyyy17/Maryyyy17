@@ -24,9 +24,9 @@ oii meus amoress
 - 😄 Pronomes:ela/dela
 - ⚡ Fun fact: ja trabalhei em uma açaiteria
 
--jeongcheol real
--seventeen principes do kpop :)
--ash e march as mais mais do "hot"
--dream e sara sara as mais mais do "always yours"
--scoups no met gala veyrrr
--git addnao to entendendo nada de fup :(
+- jeongcheol real
+- seventeen principes do kpop :)
+- ash e march as mais mais do "hot"
+- dream e sara sara as mais mais do "always yours"
+- scoups no met gala veyrrr
+- nao to entendendo nada de fup :(

@@ -15,3 +15,11 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 oii meus amoress
+- 🔭 estudante do curso de design digital-ufc
+- 🌱 estudando java script,desenho e psicologia
+- 👯 I’m looking to collaborate with seventeen
+- 🤔 preciso de ajuda em git,javascript e desenho
+- 💬 me pergunte sobre seventeen e attack on titan
+- 📫 email:marianeliberato25@alu.ufc.br
+- 😄 Pronomes:ela/dela
+- ⚡ Fun fact: ja trabalhei em uma açaiteria

@@ -29,7 +29,7 @@ oii meus amoress
 - ash e march as mais mais do "hot"
 - dream e sara sara as mais mais do "always yours"
 - scoups no met gala veyrrr
-- nao to entendendo nada de fup :(
+
 
     # aula 15/05
 - criar uma "issue" 

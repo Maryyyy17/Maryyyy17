@@ -29,7 +29,8 @@ oii meus amoress
 - ash e march as mais mais do "hot"
 - dream e sara sara as mais mais do "always yours"
 - scoups no met gala veyrrr
-
-
+- aaaa
     # aula 15/05
 - criar uma "issue" 
+- git switch e git branch
+

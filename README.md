@@ -24,12 +24,12 @@ oii meus amoress
 - 😄 Pronomes:ela/dela
 - ⚡ Fun fact: ja trabalhei em uma açaiteria
 
-# jeongcheol real
-- seventeen principes do kpop :)
-- ash e march as mais mais do "hot"
-- dream e sara sara as mais mais do "always yours"
-- scoups no met gala veyrrr
-- aaaa
+# Ranking Seventeen's Album
+- Face The Sun
+- Your Choice
+- Going Seventeen
+- An Ode
+- Attacca
 
     # aula 15/05
 - criar uma "issue" 

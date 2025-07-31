@@ -15,9 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Mariane Liberato
-19 anos
-ela/dela
-Design Digital - Universidade Federal do Ceará
-Contato : marianeliberato25@alu.ufc.br
-Intresses : Comunicação, Semiótica e UX Design
+- 19 anos
+- ela/dela
+- Design Digital - Universidade Federal do Ceará
+- Contato : marianeliberato25@alu.ufc.br
+- Intresses : Comunicação, Semiótica e UX Design
 

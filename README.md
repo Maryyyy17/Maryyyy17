@@ -14,25 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-oii meus amoress
-- 🔭 estudante do curso de design digital-ufc
-- 🌱 estudando java script,desenho e psicologia
-- 👯 I’m looking to collaborate with seventeen
-- 🤔 preciso de ajuda em git,javascript e desenho
-- 💬 me pergunte sobre seventeen e attack on titan
-- 📫 email:marianeliberato25@alu.ufc.br
-- 😄 Pronomes:ela/dela
-- ⚡ Fun fact: ja trabalhei em uma açaiteria
-
-# Ranking Seventeen's Album
-- Face The Sun
-- Your Choice
-- Going Seventeen
-- An Ode
-- Attacca
-
-    # aula 15/05
-- criar uma "issue" 
-- git switch e git branch
-
+Mariane Liberato
+19 anos
+ela/dela
+Design Digital - Universidade Federal do Ceará
+Contato : marianeliberato25@alu.ufc.br
+Intresses : Comunicação, Semiótica e UX Design
 

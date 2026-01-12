@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Mariane Liberato
-- 19 anos
+- 20 anos
 - ela/dela
 - Design Digital - Universidade Federal do Ceará
 - Contato : marianeliberato25@alu.ufc.br
